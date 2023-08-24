@@ -15,3 +15,4 @@ cameronnorman07@gmail.com
 Instagram:
 @cameron_norman07
 
+https://github.com/snipe/animated-gifs/blob/master/Techy/Moss-Fire.gif
